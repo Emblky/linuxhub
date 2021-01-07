@@ -1,3 +1,2 @@
-qnejkqwbek####read
-qw
-11231231
+begin let's go ;
+linux kernel
